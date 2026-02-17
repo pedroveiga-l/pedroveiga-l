@@ -10,7 +10,7 @@ Email: pedroveiga1902@gmail.com | LinkedIn: https://www.linkedin.com/in/pedrovei
 <br/>
 
 ---
-<br/>
+
 ### 🤖 Linguagens e Tecnologias
 
 <img
